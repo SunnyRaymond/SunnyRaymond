@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hi there 👋 Student at Nanyang Technological University, willing to embrace changes!
 
 <!--
 **SunnyRaymond/SunnyRaymond** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
